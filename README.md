@@ -1,5 +1,5 @@
 # 💫 About Me:
-💫 About me<br><br>Hi  🖐️ I am  Darshan R<br>
+Hi  🖐️ I am  Darshan R<br>
 
 
 ## 🌐 Socials:
